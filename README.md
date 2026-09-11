@@ -1,3 +1,4 @@
+
 # hello , hi . 
 
 ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
@@ -9,6 +10,14 @@ Fandoms *.  FAA , TF2 , DNB , MD , STARTERS , CUPHEAD , CONSTRUCTION, ENDACOPIA 
 
 
 <img width="500" height="500" alt="picmix com_14010616" src="https://github.com/user-attachments/assets/ed869594-6141-4ea1-bb12-eaebf9c01212" />
+
+
+⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
+
+
+
+<img width="640" height="480" alt="images" src="https://github.com/user-attachments/assets/11c7fe5b-e61c-45af-a7d3-73e94069f81c" />
+
 
 
 ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
@@ -44,3 +53,11 @@ Stamps And Blinkies *.
 <img width="150" height="20" alt="blinkiesCafe-SP" src="https://github.com/user-attachments/assets/b0e96dc3-4df7-47fd-8910-1dc9eaf1277b" />
 <img width="150" height="20" alt="blinkiesCafe-rs" src="https://github.com/user-attachments/assets/036caad5-38c3-4c06-96ac-7a8fc6c58fb5" />
 <img width="150" height="20" alt="blinkiesCafe-sk" src="https://github.com/user-attachments/assets/65c39c77-6525-4e15-a24b-508f703aa63a" />
+
+
+
+
+⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
+
+
+this thing sucks
