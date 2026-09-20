@@ -16,14 +16,6 @@ Fandoms *.  FAA , TF2 , DNB , MD , STARTERS , CUPHEAD , CONSTRUCTION, ENDACOPIA 
 
 
 
-<img width="640" height="480" alt="images" src="https://github.com/user-attachments/assets/11c7fe5b-e61c-45af-a7d3-73e94069f81c" />
-
-
-
-⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
-
-
-
 All about me *. I HAVE ADHD , I RLLY LIKE GREEN APPLES AND STRAWBERRY CAKES  , IM A MINOR ( 13+ ) .
 
 
